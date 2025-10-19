@@ -1,7 +1,19 @@
-wippilled, im going to make it look nice i just want to give basic info ; 
+<p align="center">
+  <img src="https://files.catbox.moe/dsdsa8.png">
+</p>
 
-i use bonnibel mainly but i also use enid / names of my favorite characters
+<div align="center">
 
-i am 17 so please dont be weird to me if i dont know you ok?
+𓏏𓏏 art by owlssin on tumblr 
 
-i like wenclair and just shipping in general, i think its a fun way to explore dynamics & possible character development, so you might catch me #yapping about ships i like !!
+𓏲 rentry ; [.co/serotoninsupply](https://rentry.co/serotoninsupply) (≧◡≦)
+
+︶︶︶  ︶︶︶ ౨ৎ ︶︶︶  ︶︶︶
+
+― usually low mood ⧣ feel free to int *!!*
+
+under 14 & over 20 dniuid / uf ᎓ ৎ
+
+︶ butch lesbithing ଽ aroflux ∿ asexual
+
+𓏲 i respect queer identities that are contradicting / confusing ♡
